@@ -23,3 +23,5 @@
 ## anime girl image 2024-06-23, [Anime Girl Image Prompt in 2024-06-23](images_2024-06-23.md)
 ## anime girl image 2024-06-24, [Anime Girl Image Prompt in 2024-06-24](images_2024-06-24.md)
 ## anime girl image 2024-06-26, [Anime Girl Image Prompt in 2024-06-26](images_2024-06-26.md)
+## anime girl image 2024-06-27, [Anime Girl Image Prompt in 2024-06-27](images_2024-06-27.md)
+## anime girl image 2024-06-29, [Anime Girl Image Prompt in 2024-06-29](images_2024-06-29.md)
